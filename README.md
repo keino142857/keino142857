@@ -1,4 +1,4 @@
-## Hi there 👋![176309783-0785949b-9127-417c-8b55-ab5a4333674e](https://github.com/user-attachments/assets/e1732529-1d0b-44e8-a225-6698149e3dac)
+## Hi there ![176309783-0785949b-9127-417c-8b55-ab5a4333674e](https://github.com/user-attachments/assets/e1732529-1d0b-44e8-a225-6698149e3dac)
 
 
 <!--
